@@ -78,7 +78,7 @@
 ## 📬 Reach Me
 
 - 📧 **arinvashishtha217@gmail.com**
-- 🔗 [LinkedIn](www.linkedin.com/in/arin-vashishtha-662176248)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/arin-vashishtha-662176248/)
 - 🐦 [Twitter](https://x.com/VashishthaArin)
 
 ---
